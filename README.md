@@ -1,0 +1,1 @@
+# VampireRichesFullClassesStepType-0
